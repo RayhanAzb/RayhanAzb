@@ -1,6 +1,6 @@
  Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.<br>
+Perkenalkan nama saya **Rayhan Aziz Budiana**.<br>
 
 Saya seorang **Kepala Divisi Humas dan Asisten Riset Laboratorium** di [Adaptive Network Lab]([https://www.dicoding.com/](https://adaptivenetworklab.org/tentang/)).<br>
 
